@@ -1,6 +1,6 @@
 ⠀
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=murderful&color=db91b1&label=⠀DIE BRU DIE⠀"> </p>
+<p align="center"> <img src="https://76387289.carrd.co/assets/images/image04.jpg?v=0b6a3bcc"> </p>
 
 ⠀
 ⠀
